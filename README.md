@@ -14,7 +14,7 @@ $\small\color{#e36d6d}{\textsf{!images not mine!}}$
 <p align="center">This'll be a brief intro so if you consider interacting please read these links down bellow:-
   
  
-   [pronounce](https://en.pronouns.page/@EMMAFROSTs)  . SP is a WIP (you can read the old one from my bio though)
+   [pronouns](https://en.pronouns.page/@EMMAFROSTs)  . SP is a WIP (you can read the old one from my bio though)
 
    <p align="center">I'm 15 years old this year, my birthday being 5/16
    
