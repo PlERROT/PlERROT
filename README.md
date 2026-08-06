@@ -1,2 +1,2 @@
 updating README
-la la lalaaaa (https://pronouns.cc/@PlERROT) [pronouns]
+la la lalaaaa [pronouns](https://pronouns.cc/@PlERROT) 
