@@ -34,3 +34,5 @@
 <div align="center"> 
 
   [pronouns](https://pronouns.cc/@PlERROT) | [rentry](https://rentry.co/eriklensherr)
+
+<p align="center"> <img width="500" src="https://i.postimg.cc/8zJ5ZDWT/Untitled299-20260816203149.png" alt="yukiRyuzaki">
