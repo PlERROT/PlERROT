@@ -1,3 +1,5 @@
+IMPORTANT: as in aug 19 till the day you see this message i'm suspended from ponytown, I don't know the cause however if I actually violated rules or not. I contacted the PT team and I'm actively trying to get the account back, sorry for any confusions on why I disappeared. if you wish to talk to me DM me on discord! @yukiisreal_
+
 <p align="right"> <img width="100" src="https://komarev.com/ghpvc/?username=PlERROT&label=visitors&color=7844a6" alt="views count">
 
 <p align="center"> <img width="500" src="https://i.postimg.cc/jS3LMXVS/Untitled298-20260814135703.png" alt="charik">
